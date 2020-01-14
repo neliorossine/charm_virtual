@@ -1,5 +1,5 @@
 # Charm Virtual
 
-### E-commer e calçados
+### E-commerce de calçados
 
 Link: https://www.charmvirtual.com.br/
